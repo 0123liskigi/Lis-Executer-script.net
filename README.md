@@ -41,4 +41,4 @@ https://discord.gg/Xfk4FUep - Get sneak peeks at new mods or updates and chat ar
 https://discord.gg/R5kgRnBjBM - My main server full of chaos, designed for my YouTube channel.
 
 # Lis Exploiter
-Lis Exploiter its a yt exploiter use Executer like Dansploit Krnl nad Omega X
+Lis Exploiter its a yt exploiter use Executer like Dansploit Krnl and Omega X
