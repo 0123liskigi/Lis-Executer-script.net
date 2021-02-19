@@ -39,3 +39,6 @@ Code its Made by Lis exploiter
 # Discord
 https://discord.gg/Xfk4FUep - Get sneak peeks at new mods or updates and chat around!
 https://discord.gg/R5kgRnBjBM - My main server full of chaos, designed for my YouTube channel.
+
+# Lis Exploiter
+Lis Exploiter its a yt exploiter use Executer like Dansploit Krnl nad Omega X
