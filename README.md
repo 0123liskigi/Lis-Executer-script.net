@@ -13,7 +13,7 @@ you can download here:https://mega.nz/file/lg9V0CBL#8WTdfy-XnTjX4Y4osxJISupty-qB
 Script
 ------
 
-#Lis.script.net
+Lis.script.net
 Script for Krnl And Omega x
 
 
