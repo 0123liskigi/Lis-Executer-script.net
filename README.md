@@ -26,5 +26,13 @@ MM2 script
 MM2 script its a OP script like so many menu you can get the script for Krnl Or Omega X or Synapse X
 you can download the script here:https://mega.nz/file/l8IjBCYA#US_gnLTvkZpXB971U-MMJjYRwEBCQtezGjVkci7I1cY
 
-Code Made by
-Code its Made by Lis Exploiter And ty for read this
+Owl hub Arsenal script
+owl hub its for level 7 executer
+you can get the script here:https://mega.nz/file/c9QiwRZb#a8TB2Yn3h5QyHEHCB4R-ZnmOTHlcOrYpr9bPt1iyY8U
+
+Dark Hub Arsenal script
+Dark Hub its for level 7 executer
+you can get the script here:https://mega.nz/file/Z4BWHBBR#V63wSK_dX2BjbpsCbxaqFnj3z47ZS4_HAK5x2bX-8Pw
+
+#Code Made by
+Code its Made by Lis exploiter
