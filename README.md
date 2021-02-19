@@ -3,7 +3,7 @@ A Roblox Executer With Script
 
 # Krnl Executer Download
 Krnl is a Keyless Level 8 Executer Script such as Robeats script MM2 Script and Arsenal script
-you can Download By Pressing this link:https://mega.nz/file/i9tlVYhD#6McnKcnOwWdDw5El9feCtlg3zXkAQ2u2g9PjM8z9Yuc
+you can Download By Pressing this link:https://mega.nz/file/Nl4BXYAL#P8Vs9be6liP0w1M5X10ZhQlKGlNLwckOcdVaO4uC0ME
 
 # Krnl Key
 Krnl key bypass resource
@@ -13,8 +13,7 @@ key:https://cdn.discordapp.com/attachments/804309245411459102/812286222810611712
 # Omega X
 Omega X is a Level 7 Executer No Key system And Easy to use and it was no crash
 script type its MM2 script Arsenal Script and Owl Hub Support like Krnl
-you can download here:https://mega.nz/file/lg9V0CBL#8WTdfy-XnTjX4Y4osxJISupty-qBfZKf9R1rrCFym-k
-
+you can download here:https://mega.nz/file/EpBQ2ZAB#GL1Mv6DA6PCWdIO50MQAkY61CGCHMAVYCV-MBRFvocU
 Script
 ------
 
@@ -61,4 +60,4 @@ Discord:Lis Exploiter#4608
 Twitter:https://twitter.com/0123liskigi
 
 # Supporter
-MeRobloxNoob and 3PIC FRI3NDZ
+MeRobloxNoob,3PIC FRI3NDZ And Robeats Audio Meme
