@@ -3,7 +3,7 @@ A Roblox Executer With Script
 
 # Krnl Executer Download
 Krnl is a Keyless Level 8 Executer Script such as Robeats script MM2 Script and Arsenal script
-you can Download By Pressing this link:https://mega.nz/file/F5xFkCyC#xsBqwo2mcdPEx0fDdQ4X2w7lnjg5VgpgsYppVCI_skQ
+you can Download By Pressing this link:https://mega.nz/file/i9tlVYhD#6McnKcnOwWdDw5El9feCtlg3zXkAQ2u2g9PjM8z9Yuc
 
 # Omega X
 Omega X is a Level 7 Executer No Key system And Easy to use and it was no crash
