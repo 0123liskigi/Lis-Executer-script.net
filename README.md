@@ -17,14 +17,14 @@ Script
 Script for Krnl And Omega x
 
 
-#Robeats script
+Robeats script
 Robeats script its a AutoPlayer robeats script for krnl and Synapse x
 you can download here:https://mega.nz/file/h9RCXbzQ#J5fvchjQrwZtXAOT2VZkvRYE9KdCKqmNHghEzxYerLg
 
 
-#MM2 script
+MM2 script
 MM2 script its a OP script like so many menu you can get the script for Krnl Or Omega X or Synapse X
 you can download the script here:https://mega.nz/file/l8IjBCYA#US_gnLTvkZpXB971U-MMJjYRwEBCQtezGjVkci7I1cY
 
-#Code Made by
+Code Made by
 Code its Made by Lis Exploiter And ty for read this
