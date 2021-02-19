@@ -59,3 +59,6 @@ Lis Exploiter
 
 Discord:Lis Exploiter#4608
 Twitter:https://twitter.com/0123liskigi
+
+# Supporter
+MeRobloxNoob and 3PIC FRI3NDZ
