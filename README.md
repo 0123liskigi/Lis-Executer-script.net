@@ -34,5 +34,4 @@ Dark Hub Arsenal script
 Dark Hub its for level 7 executer
 you can get the script here:https://mega.nz/file/Z4BWHBBR#V63wSK_dX2BjbpsCbxaqFnj3z47ZS4_HAK5x2bX-8Pw
 
-#Code Made by
 Code its Made by Lis exploiter
