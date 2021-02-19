@@ -42,3 +42,7 @@ https://discord.gg/R5kgRnBjBM - My main server full of chaos, designed for my Yo
 
 # Lis Exploiter
 Lis Exploiter its a yt exploiter use Executer like Dansploit Krnl and Omega X
+
+# Among us mod menu
+Among us Mod Menu its a hack for among us 
+you can download here:https://mega.nz/file/Fxx2lAxA#szno05HmTHqBleb8bwTgjjJPMq0GzFvRJzN6yRM6eNg
