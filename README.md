@@ -54,3 +54,8 @@ you can download here:https://mega.nz/file/Fxx2lAxA#szno05HmTHqBleb8bwTgjjJPMq0G
 
 # Scripting Made By
 Lis Exploiter
+
+# Support me in discord or Tweet me
+
+Discord:Lis Exploiter#4608
+Twitter:https://twitter.com/0123liskigi
