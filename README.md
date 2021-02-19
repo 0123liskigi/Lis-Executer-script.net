@@ -35,3 +35,7 @@ Dark Hub its for level 7 executer
 you can get the script here:https://mega.nz/file/Z4BWHBBR#V63wSK_dX2BjbpsCbxaqFnj3z47ZS4_HAK5x2bX-8Pw
 
 Code its Made by Lis exploiter
+
+# Discord
+https://discord.gg/Xfk4FUep - Get sneak peeks at new mods or updates and chat around!
+https://discord.gg/R5kgRnBjBM - My main server full of chaos, designed for my YouTube channel.
