@@ -14,6 +14,11 @@ key:https://cdn.discordapp.com/attachments/804309245411459102/812286222810611712
 Omega X is a Level 7 Executer No Key system And Easy to use and it was no crash
 script type its MM2 script Arsenal Script and Owl Hub Support like Krnl
 you can download here:https://mega.nz/file/EpBQ2ZAB#GL1Mv6DA6PCWdIO50MQAkY61CGCHMAVYCV-MBRFvocU
+
+# Dansploit
+Dansploit its the most faster detec as Trojan Agent and it was Level 5 Executer
+Download:https://wearedevs.net/d/dansploit
+
 Script
 ------
 
