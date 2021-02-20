@@ -7,7 +7,7 @@ you can Download By Pressing this link:https://mega.nz/file/j90EiK7T#_Z7VeBCdBr3
 
 # Krnl Key
 Krnl key bypass resource
-key:https://cdn.discordapp.com/attachments/804309245411459102/812286222810611712/KrnlBypassCode_-_Linkvertise.txt
+key:https://cdn.discordapp.com/attachments/804309245411459102/812651801777930250/Krnl_Bypass_key.txt
 
 
 # Omega X
