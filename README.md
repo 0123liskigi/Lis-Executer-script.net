@@ -43,6 +43,10 @@ Dark Hub Arsenal script
 Dark Hub its for level 7 executer
 you can get the script here:https://mega.nz/file/Z4BWHBBR#V63wSK_dX2BjbpsCbxaqFnj3z47ZS4_HAK5x2bX-8Pw
 
+Mega easy Obby script for Krnl
+Mega Easy Obby script its auto farm teleport to stage by stage
+you can get the script here:https://controlc.com/16ff92e4
+
 Code its Made by Lis exploiter
 
 # Discord
