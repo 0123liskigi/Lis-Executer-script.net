@@ -52,6 +52,10 @@ Toh Gui its a gui Made By Lis exploiter and Anti cheat
 You can get here:https://controlc.com/f5510220
 Passwork:qayyim123
 
+Saber Simulator Script
+Saber Simulator Script its a gui Teleports and farming
+you can get the script here:https://bit.ly/3k7v5k5
+
 
 Code its Made by Lis exploiter
 
