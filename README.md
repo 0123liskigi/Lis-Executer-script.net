@@ -47,6 +47,12 @@ Mega easy Obby script for Krnl
 Mega Easy Obby script its auto farm teleport to stage by stage
 you can get the script here:https://controlc.com/16ff92e4
 
+Toh Gui
+Toh Gui its a gui Made By Lis exploiter and Anti cheat
+You can get here:https://controlc.com/f5510220
+Passwork:qayyim123
+
+
 Code its Made by Lis exploiter
 
 # Discord
