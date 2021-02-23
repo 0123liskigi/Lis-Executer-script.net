@@ -33,7 +33,7 @@ you can download here:https://mega.nz/file/h9RCXbzQ#J5fvchjQrwZtXAOT2VZkvRYE9KdC
 
 MM2 script
 MM2 script its a OP script like so many menu you can get the script for Krnl Or Omega X or Synapse X
-you can download the script here:https://mega.nz/file/l8IjBCYA#US_gnLTvkZpXB971U-MMJjYRwEBCQtezGjVkci7I1cY
+you can download the script here:loadstring(game:HttpGet("https://raw.githubusercontent.com/0123liskigi/lis.script.net/work/and/robeats-script/MM2/script%20still%20working/Not%20Made%20By%20LisExploiter", true))()
 
 Owl hub Arsenal script
 owl hub its for level 7 executer
