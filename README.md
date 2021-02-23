@@ -56,6 +56,11 @@ Saber Simulator Script
 Saber Simulator Script its a gui Teleports and farming
 you can get the script here:https://bit.ly/3k7v5k5
 
+Blox Hunt Script
+Blox hunt script its a script with infinite health and infinite energy
+you can get the script here:https://controlc.com/1a2e5e2a
+Password:\5F[-kfn[9u_3m#X
+
 
 Code its Made by Lis exploiter
 
