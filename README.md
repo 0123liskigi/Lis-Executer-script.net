@@ -65,6 +65,11 @@ Blox hunt script its a script with infinite health and infinite energy
 you can get the script here:https://controlc.com/1a2e5e2a
 Password:\5F[-kfn[9u_3m#X
 
+GrubHubGold Hub
+GrubHubGold is a script like Bee Swarm simulator and Others
+you can get the script:https://controlc.com/0765d031
+Password:{mf=y;5R).SZ-TG5
+
 
 Code its Made by Lis exploiter
 
