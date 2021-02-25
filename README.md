@@ -6,8 +6,7 @@ Krnl is a Keyless Level 8 Executer Script such as Robeats script MM2 Script and 
 you can Download By Pressing this link:https://mega.nz/file/StN3la6S#DWegME7UjO011v3upR0HS2pnAiboSHBvUcjizlhC6dc
 # Krnlss.exe
 Make sre you Download if Krnlss.exe were missing
-Download:https://mega.nz/file/QsIz2SrJ#ltf2iA-5tBAYzZL4VdZm1161NNLiZ-CQmF0Ae2W54CI
-
+Download:https://mega.nz/file/tl5WALwQ#x6-MXqVrT8It4lDk1rUcOVo_Jqdvnvt_WDkafNBspcU
 # Krnl Key
 Krnl key bypass resource
 key:https://cdn.discordapp.com/attachments/804309245411459102/812651801777930250/Krnl_Bypass_key.txt
