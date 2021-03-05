@@ -3,7 +3,7 @@ A Roblox Executer With Script
 
 # Krnl Executer Download
 Krnl is a Keyless Level 8 Executer Script such as Robeats script MM2 Script and Arsenal script
-you can Download By Pressing this link:https://mega.nz/file/StN3la6S#DWegME7UjO011v3upR0HS2pnAiboSHBvUcjizlhC6dc
+you can Download By Pressing this link:https://mega.nz/file/6ps2kZCQ#FBMRy0Zi0xk7z5-mJnBV7oBE7VcJWPRfcU-e_SuTX00
 # Krnlss.exe
 Make sre you Download if Krnlss.exe were missing
 Download:https://mega.nz/file/tl5WALwQ#x6-MXqVrT8It4lDk1rUcOVo_Jqdvnvt_WDkafNBspcU
